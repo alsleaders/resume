@@ -1,4 +1,4 @@
 # My Resume
 
 
-My updated resume as of September 2021.
+My updated resume as of July 2024.
